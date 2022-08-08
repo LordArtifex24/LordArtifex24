@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LordArtifex24
+- 👋 Hi, I’m Luke Artifex
 - 👀 I’m interested in improving my logical thinking by reading and adding external code (with all the due respect) from this comunnity. It's my first time here ;)
 - 🌱 I’m currently studying mechactronic engineering. 
 - 💞️ I’m looking to collaborate on (I'm not really sure, yet. I feel kinda lost)
